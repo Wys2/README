@@ -7,7 +7,6 @@ I love games, anime, chat with friends, learn.
 I'm from 🇨🇭, and speak 🇫🇷 
 
 You can find me on :
-- Instagram : @underscore_wys
 - Twitter : @ColonelWys
 - On the web : https://0xWys.dev
 - Discord : @0xWys
